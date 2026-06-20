@@ -1,2 +1,2 @@
 # MGK
-Beginning of Forming own Empire
+Beginning of Forming a own Empire
